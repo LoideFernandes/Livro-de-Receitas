@@ -6,7 +6,7 @@
  - 4 ovos
  - 2 xícaras (chá) de açúcar
  - 2 e 1/2 xícaras (chá) de farinha de trigo
- -  1 colher (sopa) de fermento em pó
+ - 1 colher (sopa) de fermento em pó
 
 ###**Modo de Preparo**
 Em um liquidificador, adicione a cenoura, os ovos e o óleo, depois misture.
